@@ -1,4 +1,4 @@
 # happy
-i like to be basketball
+i like to play basketball
 i am a dubstep dancer
 i study geomatic engineering as a programme
